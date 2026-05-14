@@ -1,0 +1,1 @@
+Hi this is simply the intro lesson to guitar which i would be uploading soon.
